@@ -1,5 +1,5 @@
 # How Can I Find The Best Atlas Practitioner That Offers Neck Pain Treatment? 
-<img src="https://66.media.tumblr.com/74e2617da1c0775624c226e90cd18a6e/tumblr_inline_pngr9txFTz1wzaf2v_500.jpg" alt="Neck Pain Treatment" style="float:left;width:350px;height:300px;">
+<center><img src="https://66.media.tumblr.com/74e2617da1c0775624c226e90cd18a6e/tumblr_inline_pngr9txFTz1wzaf2v_500.jpg" alt="Neck Pain Treatment" style="float:left;width:350px;height:300px;"></center>
 
 Sports mishaps, poor posture, and injury from a fall are some of the most common explanations why a lot of people suffer from neck discomfort. But besides these, one more possible reason why pain in the neck occurs is due to the misaligned atlas. Atlas is the uppermost vertebra of the spine that holds the head and is in charge of its rotation movements. And if the bone isn’t in the right position, it’s best to seek help from an atlas specialist that gives a neck pain treatment. 
 
